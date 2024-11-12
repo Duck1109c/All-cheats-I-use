@@ -1,5 +1,7 @@
 # All cheats I use
 They work on mobile and computer
+# video on how to use both types of cheats
+Coming soon
 # How to use the simple cheats
 Create a bookmark of anything
 
