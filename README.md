@@ -18,4 +18,4 @@ delete the websites url
 paste the code you want to use
 
 # How to use Difficult cheats
-Coming soon after prodigy cheats
+Coming soon
