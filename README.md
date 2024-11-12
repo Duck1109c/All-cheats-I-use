@@ -1,6 +1,6 @@
 # All cheats I use
 They work on mobile and computer
-# How to use the cheats
+# How to use the simple cheats
 Create a bookmark of anything
 
 open your bookmarks
